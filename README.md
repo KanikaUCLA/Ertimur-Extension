@@ -1,0 +1,1 @@
+Extended the Ertimur – Differential Market Reactions to Revenue and Expenses (2003) research to 2020 – 2022, results suggest a similar response to sales and expense surprise; stronger reaction towards earnings and sale surprise for value firm
